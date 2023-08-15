@@ -1,1 +1,1 @@
-# index.html 
+“Let's celebrate the essence of being Indian and the privilege of living in a free country. “This Independence Day, let's remember the past, appreciate the present, and work towards a promising future. “As we celebrate the freedom that we enjoy today, let's also remember those who made it possible.
